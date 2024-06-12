@@ -1,1 +1,1 @@
-# WannaThink-randomware
+# WannaThink-ransomware
